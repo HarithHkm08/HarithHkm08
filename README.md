@@ -8,3 +8,5 @@ i liek cars 🏎️💨
 </p>
 
 chaotic experiments, random ideas, and bad decisions live here 😏
+
+btw, sign this so that you can install stuff on Android later on, because Google is asshole: https://c.org/YhvtKMDdPM
